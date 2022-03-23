@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Why can't a bicycle stand on its own? It's two-tired.
