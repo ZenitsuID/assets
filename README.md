@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Breaking news! Energizer Bunny arrested – charged with battery.
