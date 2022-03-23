@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What creature is smarter than a talking parrot? A spelling bee.
